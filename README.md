@@ -1,16 +1,28 @@
-## Hi there 👋
+𝗛𝗲𝗹𝗹𝗼!! ♡♡
 
-<!--
-**PaperSt4rs/PaperSt4rs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+read ⬇️
 
-Here are some ideas to get you started:
+Please don't copy my skins ! I worked hard to make them. You can take inspo but don't copy completely. Please do not screenshot my skins too. I see people screenshot skins and put them on Pinterest and I don't want that.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Free c+h always ! So feel free to cuddle :3 (Unless I have dni/dniuf in my name or i'm with friends !!)
+
+I sometimes use troll skins for fun :P
+
+My nicknames are Rex/Trex and my pronouns are He/Him/They (Pansexual ^^)
+
+I speak 2 languages = Polish,English ^_^
+
+I'm a cosplayer so my skins are mostly cosplays.
+
+Fandoms i'm in/still talk about: Dandy's World, Forsaken (Kind of), Cookie run kingdom, Squid game, Arcane, Dsmp/Qsmp (Quit cosplaying but still talk about),Eddsworld, Mouthwashing, Octonauts, Httyd (rtte mostly), Regretevator, Nimona, Hazbin Hotel, Helluva Boss (kinda)
+
+(I honestly don't know if Wild Kratts has a fandom but I talk about it sometime)
+
+I know i'm in alot of fandoms eheh...
+
+Do not interract with me if:
+
+you're above 30 years old (Kids can int no problem ^^)
+Racist/Homophobic (I don't like it. If you don't support lgbt you don't have to just plz be nice)
+If you ship minors with adults in any of the fandoms I'm in (It's wrong)
+Thank you for reading !! :D
