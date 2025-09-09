@@ -8,7 +8,7 @@ Free c+h always ! So feel free to cuddle :3 (Unless I have dni/dniuf in my name 
 
 I sometimes use troll skins for fun :P
 
-My nicknames are Rex/Trex and my pronouns are He/Him/They (Pansexual ^^)
+My nicknames are Rex/Trex/Rory/Roman and my pronouns are He/They (Pansexual ^^)
 
 I speak 2 languages = Polish,English ^_^
 
