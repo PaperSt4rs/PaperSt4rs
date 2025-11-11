@@ -22,7 +22,10 @@ I know i'm in alot of fandoms eheh...
 
 Do not interract with me if:
 
-you're above 30 years old (Kids can int no problem ^^)
+you're a creep (saying weird, uncomfortable stuff)
 Racist/Homophobic (I don't like it. If you don't support lgbt you don't have to just plz be nice)
 If you ship minors with adults in any of the fandoms I'm in (It's wrong)
+
+Kids can interract no problem I'm kind^^
+
 Thank you for reading !! :D
