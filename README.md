@@ -8,13 +8,13 @@ Free c+h always ! So feel free to cuddle :3 (Unless I have dni/dniuf in my name 
 
 I sometimes use troll skins for fun :P
 
-My nicknames are Rex/Trex/Rory/Roach and my pronouns are He/They (Pansexual ^^)
+My nicknames are Rex/Trex/Simon and my pronouns are He/They (Pansexual ^^)
 
 I speak 2 languages = Polish,English ^_^
 
 I'm a cosplayer so my skins are mostly cosplays.
 
-Fandoms i'm in/still talk about: Dandy's World, Forsaken (Kind of), Cookie run kingdom, Squid game, Arcane, Dsmp/Qsmp (Quit cosplaying but still talk about),Eddsworld, Mouthwashing, Octonauts, Httyd (rtte mostly), Regretevator, Nimona, Hazbin Hotel, Helluva Boss (kinda), CoD
+Fandoms i'm in/still talk about: Dandy's World, Forsaken (Kind of), Cookie run kingdom, Squid game, Arcane, Dsmp/Qsmp (Quit cosplaying but still talk about),Eddsworld, Mouthwashing, Octonauts, Httyd (rtte mostly), Regretevator, Nimona, Hazbin Hotel, Helluva Boss (kinda), Call of Duty, Modern warfare
 
 (I honestly don't know if Wild Kratts has a fandom but I talk about it sometime)
 
