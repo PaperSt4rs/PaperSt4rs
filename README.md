@@ -1,29 +1,49 @@
-𝗛𝗲𝗹𝗹𝗼!! ♡♡
+​᭄ᥬ۵٭ 𝗛𝗲𝗹𝗹𝗼!! ツ ᘏ▻▻​᭄۵𓏲࿐
 
-read ⬇️
+𝙿𝚕𝚜 𝚛𝚎𝚊𝚍! ⬇︎⬇︎
 
-Please don't copy my skins ! I worked hard to make them. You can take inspo but don't copy completely. Please do not screenshot my skins too. I see people screenshot skins and put them on Pinterest and I don't want that.
+◅୨​᭄ও 𝗣𝗹𝗲𝗮𝘀𝗲 𝗱𝗼𝗻'𝘁:
+• 𝐶𝑜𝑝𝑦 𝑚𝑦 𝑠𝑘𝑖𝑛𝑠 (𝖨 𝗐𝗈𝗋𝗄𝖾𝖽 𝗁𝖺𝗋𝖽 𝗍𝗈 𝗆𝖺𝗄𝖾 𝗍𝗁𝖾𝗆) 
+• 𝐶𝑜𝑣𝑒𝑟 𝑚𝑒 (𝐼𝑡'𝑠 𝑠𝑜𝑚𝑒𝑡𝑖𝑚𝑒𝑠 𝑎𝑛𝑛𝑜𝑦𝑖𝑛𝑔) 
+• 𝑆𝑐𝑟𝑒𝑒𝑛𝑠ℎ𝑜𝑡 𝑚𝑦 𝑠𝑘𝑖𝑛𝑠 𝑎𝑛𝑑 𝑝𝑢𝑡 𝑡ℎ𝑒𝑚 𝑜𝑛 𝑃𝑖𝑛𝑡𝑒𝑟𝑒𝑠𝑡 (𝖡𝗂𝗀 𝗇𝗈) 
 
-Free c+h always ! So feel free to cuddle :3 (Unless I have dni/dniuf in my name or i'm with friends !!)
+𝐂+𝐇 = ☑ , 𝐃𝐍𝐈 = ☐:
+☑ 𝙸'𝚖 𝚜𝚒𝚝𝚝𝚒𝚗𝚐 𝚊𝚕𝚘𝚗𝚎 ツ
+☐ 𝙸 𝚑𝚊𝚟𝚎 𝙳𝙽𝙸 𝚒𝚗 𝚖𝚢 𝚗𝚊𝚖𝚎 𓆩☥𓆪
+☑ 𝙸'𝚖 𝚗𝚘𝚝 𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜
 
-I sometimes use troll skins for fun :P
+(𝙸𝚏 𝚢𝚘𝚞'𝚛𝚎 𝚜𝚑𝚢 𝚍𝚠 𝚓𝚞𝚜𝚝 𝚠𝚑𝚒𝚜𝚙𝚎𝚛 𝚝𝚘 𝚊𝚜𝚔 :𝟹) 
 
-My nicknames are Rex/Trex/Simon and my pronouns are He/They (Pansexual ^^)
+〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
+ꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛꔛ
+＊*•̩̩͙✩•̩̩͙*˚     𓆩(*ˊᗜˋ*)𓆪     ˚*•̩̩͙✩•̩̩͙*˚＊
 
-I speak 2 languages = Polish,English ^_^
+♫- ι ѕσмєтιмєѕ υѕє тяσℓℓ ѕкιηѕ -♫
 
-I'm a cosplayer so my skins are mostly cosplays.
+ᥬ᭕܀ Nicknames - 𝑅𝑒𝑥/𝑇𝑟𝑒𝑥/𝑆𝑖𝑚𝑜𝑛 𓆩ꔛ𓆪
 
-Fandoms i'm in/still talk about: Dandy's World, Forsaken (Kind of), Cookie run kingdom, Squid game, Arcane, Dsmp/Qsmp (Quit cosplaying but still talk about),Eddsworld, Mouthwashing, Octonauts, Httyd (rtte mostly), Regretevator, Nimona, Hazbin Hotel, Helluva Boss (kinda), Call of Duty, Modern warfare
+ ིྀও Pronouns - 𝐇𝐞/𝐭𝐡𝐞𝐲 ​᭄༻
 
-(I honestly don't know if Wild Kratts has a fandom but I talk about it sometime)
+𓆩۵ 𝐏𝐚𝐧𝐬𝐞𝐱𝐮𝐚𝐥 ۵𓆪
 
-I know i'm in alot of fandoms eheh...
+༆⊱ ⍴᥆ᥣіsһ/ᥱᥒgᥣіsһ (>_<) !! 
 
-Do not interract with me if:
+♪⪻「 𝑨𝑹𝑻𝑰𝑺𝑻 」⪼♪
 
-you're a creep (saying weird, uncomfortable stuff)
-Racist/Homophobic (I don't like it. If you don't support lgbt you don't have to just plz be nice)
-If you ship minors with adults in any of the fandoms I'm in (It's wrong)
+⊱༅ m᥆s𝗍 ᥆𝖿 mᥡ skіᥒs ᥲrᥱ ᥴ᥆s⍴ᥣᥲᥡs ツ
 
-Thank you for reading !! :D
+​᭄◤ 𝐹𝑎𝑛𝑑𝑜𝑚𝑠/𝐼𝑛𝑡𝑒𝑟𝑒𝑠𝑡𝑠:
+• 𝐶𝑎𝑙𝑙 𝑜𝑓 𝐷𝑢𝑡𝑦
+• 𝐷𝑎𝑛𝑑𝑦'𝑠 𝑊𝑜𝑟𝑙𝑑
+• 𝑂𝑐𝑡𝑜𝑛𝑎𝑢𝑡𝑠
+• 𝐹𝑜𝑟𝑠𝑎𝑘𝑒𝑛
+• 𝐸𝑑𝑑𝑠𝑤𝑜𝑟𝑙𝑑
+• 𝐴𝑟𝑐𝑎𝑛𝑒
+• 𝑊𝑖𝑙𝑑 𝐾𝑟𝑎𝑡𝑡'𝑠
+• 𝐶𝑜𝑜𝑘𝑖𝑒 𝑅𝑢𝑛 𝐾𝑖𝑛𝑔𝑑𝑜𝑚
+
+Ｄｏ ｎｏｔ ｉｎｔｅｒｒａｃｔ ｉｆ:
+• ʀᴀᴄɪsᴛ/ʜᴏᴍᴏᴘʜᴏʙɪᴄ (𝙄𝙛 𝙮𝙤𝙪 𝙙𝙤𝙣'𝙩 𝙨𝙪𝙥𝙥𝙤𝙧𝙩 𝙡𝙜𝙗𝙩 𝙮𝙤𝙪 𝙙𝙤𝙣'𝙩 𝙝𝙖𝙫𝙚 𝙩𝙤 𝙟𝙪𝙨𝙩 𝙥𝙡𝙨 𝙗𝙚 𝙣𝙞𝙘𝙚)
+• ʏᴏᴜ'ʀᴇ ᴀ ᴅ@ʀᴋsʜɪᴘᴘᴇʀ/ᴘʀ0sʜɪᴘᴘᴇʀ (𝙄𝙩'𝙨 𝙬𝙚𝙞𝙧𝙙) 
+
+ͲᎻᎪΝᏦ ᎽϴႮ ҒϴᎡ ᎡᎬᎪᎠᏆΝᏀ !! :D
